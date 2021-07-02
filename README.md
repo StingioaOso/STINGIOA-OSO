@@ -1,0 +1,1 @@
+# STINGIOA-OSO
